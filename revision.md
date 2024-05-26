@@ -1,10 +1,8 @@
 ## BUT
-I absolutely despise the word "but," and I believe I am not alone in my strong dislike for this word. 
-This tiny winy innocent word wields a surprising amount of power, allowing anyone to leverage it to their advantage. 
-My realtionship with this word is very love-hate type situation. 
-I dislike all the possibilities this word can do, but I still find myself using it when I need to.To understand, why this word is such trigger to me. We need to understand, what level of power this word holds.  
-Even though it's a tiny word. it can make  others agree with your idea at first and then tear you into shreds.
-It's a diplomatic tool, that lets you be all sweet and understanding in the first part of a sentence. Making it seem like you're on the same page as the person you're talking to. 
-But then, when you drop the word "but". It's like pulling the trigger on your fictional gun and killing other persons idea. S
-Even though I hate this word, and it makes me on the edge whenever I hear it, I can't deny that I use it often. 
-I get why it's necessary to make a good argument.
+This year was a really tough one. It challenged me in many ways, both physically and mentally. There were many changes in my life, such as a new job in a startup, and I learned new skills and techniques for creating 3D renders and animations. I gained new experience in setting boundaries with clients and being aware of what I am agreeing to. I improved my communication skills and learned how to approach clients effectively. I successfully overcame my trauma from school and gained confidence presenting in English in front of the whole class. These were some experiences I like to think about as achievements that pushed me in a positive direction.
+
+Of course, nothing is just unicorns and rainbows. There were some downsides too, such as writing my bachelor's thesis, making a film, and the death of my grandmother, who passed away just two weeks before the deadline for my thesis. That was particularly hard for me because I had no time to mourn. The thesis needed to be written, and I didn't have time for anything else.
+
+The thesis challenged me in many ways. I was never a strong writer, and it showed, but making the film was challenging on an entirely different level. There wasn't a day that I wasn’t doubting myself or feeling like throwing everything out the window. I was constantly thinking about the film. How will I make this work? Will this be enough? Will people understand it? If I change this scene, will it still make sense? Will I make it by the deadline? Am I good enough to make this? I don’t even want to mention the fear of whether things would look the way I imagined (which they, of course, never did XD). I lived in this state for two months, and needless to say, I don’t want to go through it again.
+
+Overall, I am glad I had these experiences. They showed me what I am capable of and where my limits are. I learned new things about myself and areas I need to improve in, both in professional and personal life. They taught me the importance of staying positive and always looking on the bright side of life.
